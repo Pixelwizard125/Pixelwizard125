@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Pixelwizard125
-- 👀 I’m interested in ...techs
-- 🌱 I’m currently learning ...Coding
+- 👀 I’m interested in ...Techs,Netflix,Basketball,Reading
+- 🌱 I’m currently learning ...to be a amateur Coder
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...sauravbanik16@gmail.com
 - 😄 Pronouns: ...he/him
